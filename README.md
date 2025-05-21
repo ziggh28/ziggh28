@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ziggh28
-- 👀 I’m interested inboxing
+- 👀 I’m interested in boxing
 - 🌱 I’m currently studying business at umass boston
 - 💞️ I’m looking to collaborate with all of you 
 - 📫 haiderzouhrab.1128@gmail.com
